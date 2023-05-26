@@ -2,7 +2,7 @@
 
 😊me chamo wladimir😊
 
-gostom muito de jogar basquete e futebol 🏀
+gosto muito de jogar basquete e futebol 🏀
 
 sou novo na plataforma "GITH
   
